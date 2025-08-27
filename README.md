@@ -1,0 +1,1 @@
+# Analisis-Tekstur-Telur-Menggunakan-GLCM-LBP-dengan-Klasifikasi-SVM
