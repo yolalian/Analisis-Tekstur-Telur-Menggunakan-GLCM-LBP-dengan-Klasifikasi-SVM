@@ -8,4 +8,7 @@ Alur Pengerjaan dari Penelitian :
 
 
 
-© 2025 Yolanda Ester Berliana Ritonga. Semua hak cipta dilindungi.
+
+
+
+© 2025 Yolanda Ester Berliana Ritonga.
